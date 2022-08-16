@@ -31,4 +31,4 @@ LATEST PATCH UPDATED ON AUG/10/2022
 ![](https://i.ibb.co/HYwR7DQ/Screenshot-2022-08-08-120305.png)
 ![](https://i.ibb.co/Gcw0JZS/Screenshot-2022-08-08-115443.png)
 
-dont share your password or mod application to other!!!!!!
+dont share your password or mod application to other(try with own risk)!!!!!!
